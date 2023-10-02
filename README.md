@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Max-Bos
 - 👀 I’m interested in Formule 1 and cars
 - 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on sex
 ## My Trophys
 https://github-profile-trophy.vercel.app/?username=MaxBos&theme=onedark)](https://github.com/ryo-ma/github-profile-trophy
 
